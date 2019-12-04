@@ -57,17 +57,13 @@ You are very popular if you have such behavior, like smiling, praising and helpi
 
 Secondly, the clothes you wear conveys your message without saying a word. 
 You should wear a suit and tie with high quality and good taste in the business conference. 
-Ladies dress nice, respected, confident, elegant in dark blue, dark grey, grey or black. 
-
-Men wear dark blue, dark gray, gray, but not in the black suits. 
-
-Black suit is usually worn at a funeral. 
-
+Ladies dress nice, respected, confident and elegant. 
+Men had better not wear black suits. Black suit is usually worn at a funeral. 
 Magenta and blue ties are mostly used for every occasion.
 
 ### 3
 
-Thirdly, how to communicate with others, I can understand who you are as long as you speak with me. A man's speech indicates his family background and social status. A good word warms three winters. We always like those people who also like us.
+Thirdly, how to communicate with others, I can understand who you are as long as you speak with me. A man's speech indicates his family background and social status. A good word makes you warm for three winters. We always like those people who also like us.
 
 ### 4 
 
@@ -87,5 +83,4 @@ An elegant interest should be cultivated such as music, painting, dancing, calli
 
 
 ## Conclusion
-Your image is worth millions, in this world obsessed with appearance, let us work hard together for a successful image!
-Thank you for listening!
+Your image is worth millions. When I finished this book,I pay more attention to my dress, my hairstyle, my makeup and my stature and so on. I think my image become better than before. What's more, i can give some practical suggestion to others as how to improve theis image.In this world obsessed with appearance, let us work hard together for a successful image! Thank you for listening!
