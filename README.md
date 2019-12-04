@@ -1,1 +1,1 @@
-# speeches
+# speechesI’d like to share with you one of my favorite books “Your image is worth millions”.  The author is Ingrid Zhang , who is a Canadian born Chinese, the world's top image designer.  This book is a bestseller that has sold over 1 million copies since it was published from 2003.  It will help you build a successful and outstanding image.
